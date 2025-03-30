@@ -16,4 +16,4 @@ The design and colours of the break minute are completely different. You can arr
 
 ![Image](https://github.com/user-attachments/assets/5e5f334a-989c-4a05-9e72-6e135bc5bc8b)
 
-You can also translate into English in a completely free way. 
+
